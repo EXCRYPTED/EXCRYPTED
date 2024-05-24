@@ -4,7 +4,7 @@
 
 For a proper introduction, my name is **Hexon**, but would kindly prefer to be called by either the **Names/Nicknames** listed below.
 
-##
+#
 
 `` 𝗦𝗶𝗿𝗫 | 𝗫 | 𝗛𝗲𝘅 <- Widely Known As 〈 𝗠𝗮𝗶𝗻𝘀 〉``
 
