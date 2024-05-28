@@ -1,8 +1,10 @@
 ![sir_lancelot](https://github.com/CELLCON/CELLCON/assets/154642987/08989253-b74d-4175-97a1-4cdf7f03fed9)
 
+
 〈 𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀 𝗮𝗻𝗱 𝗦𝗮𝗹𝘂𝘁𝗮𝘁𝗶𝗼𝗻𝘀, 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
 
-**More information coming soon..**
+#
+**Incomplete..**
 
 # 
 Since i've been asked multiple times to what my most used **Name Tags** or **Abbreviations** mean, here's a small list explaining each one in detail.
