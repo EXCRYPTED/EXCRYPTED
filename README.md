@@ -2,13 +2,7 @@
 
 〈 𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀 𝗮𝗻𝗱 𝗦𝗮𝗹𝘂𝘁𝗮𝘁𝗶𝗼𝗻𝘀, 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
 
-For a proper introduction, my name is **Hexon**, but would kindly prefer to be called by either the **Names/Nicknames** listed below.
-
-#
-
-`` 𝗦𝗶𝗿𝗫 | 𝗫 | 𝗛𝗲𝘅 <- Widely Known As 〈 𝗠𝗮𝗶𝗻𝘀 〉``
-
-`` 𝗗𝗮𝗺𝗲 | 𝗟𝗮𝗱𝘆 | 𝗣𝗮𝗿𝘁𝗻𝗲𝗿 <- By Beloved 〈 𝗙𝗼𝗿𝗺𝗮𝗹 〉``
+**More information coming soon..**
 
 # 
 Since i've been asked multiple times to what my most used **Name Tags** or **Abbreviations** mean, here's a small list explaining each one in detail.
