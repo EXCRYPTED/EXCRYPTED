@@ -1,7 +1,7 @@
 ![sir_lancelot](https://github.com/CELLCON/CELLCON/assets/154642987/08989253-b74d-4175-97a1-4cdf7f03fed9)
 
 
-〈 𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
+〈 𝗦𝗮𝗹𝘂𝘁𝗮𝘁𝗶𝗼𝗻𝘀 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
 
 Information and greetings will be shown in the upcoming Carrd that would be linked to your left, since it's still currently in devolopment, patience would be very appreciated until further notice. Thank you.
 
