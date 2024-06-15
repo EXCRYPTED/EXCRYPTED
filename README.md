@@ -3,7 +3,7 @@
 〈 𝗦𝗮𝗹𝘂𝘁𝗮𝘁𝗶𝗼𝗻𝘀 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
 
 #
-More information will be shown in the upcoming Carrd that would be linked to your left. Since it's still currently in devolopment, patience would be very appreciated until further notice. Thank you.
+More information will be shown in the upcoming Carrd that would be linked to your left. Since it's still currently in development, patience would be very appreciated until further notice. Thank you.
 
 # 
 I've been asked multiple times to what my most used **Name Tags** or **Abbreviations** mean, so here's a small list explaining each one in detail.
