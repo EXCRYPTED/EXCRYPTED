@@ -1,12 +1,16 @@
-![ghostrider](https://github.com/EXCRYPTED/EXCRYPTED/assets/154642987/0ccb19a3-e06c-4a7a-8df6-b77068ec6d27)
+⠀![cod](https://github.com/EXCRYPTED/EXCRYPTED/assets/154642987/0fac6aea-020e-4d05-a8c2-17921824eade)
+
+
 
 〈 𝗦𝗮𝗹𝘂𝘁𝗮𝘁𝗶𝗼𝗻𝘀 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
 
+⠀My name is **Veil**, but you can also refer to me as **X**
+
 #
-More information will be shown in the upcoming Carrd that would be linked to your left. Since it's still currently in development, patience would be very appreciated until further notice. Thank you.
+⠀More information will be shown in the upcoming Carrd that would be linked to your left. Since it's still currently in development, patience ⠀would be very appreciated until further notice. Thank you.
 
 # 
-I've been asked multiple times to what my most used **Name Tags** or **Abbreviations** mean, so here's a small list explaining each one in detail.
+⠀I've been asked multiple times to what my most used **Name Tags** or **Abbreviations** mean, so here's a small list explaining each one in detail.
 
 ```
 𝗪𝟮𝗖 <- Whisper To Contact
