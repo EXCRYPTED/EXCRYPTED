@@ -4,8 +4,6 @@
 
 〈 𝗦𝗮𝗹𝘂𝘁𝗮𝘁𝗶𝗼𝗻𝘀 𝗰𝗼𝗺𝗺𝗼𝗻𝗲𝗿. 〉
 
-My name is **Veil**, but you can also refer to me as **X**
-
 #
 More information will be shown in the upcoming Carrd that would be linked to your left. Since it's still currently in development, patience would be very appreciated until further notice. Thank you.
 
